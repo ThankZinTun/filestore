@@ -4,6 +4,6 @@
 မင်းသမီးလင်ကောင်မပေါပဲးကလေးမွေးရမယ်
 $ခွေးသားလေး
 #$FUCK YOU MIN AUNG HALING
-
+https://drive.google.com/file/d/10N2oN_dILVDRSDdavj05Rx13LsMdJCiZ/view
 
 
